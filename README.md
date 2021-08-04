@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @azkadr
+- 👋 Hi, I’m azka ><
 - 👀 I’m interested in cooking and singing!
 - 🌱 I’m currently learning animal nutrition science :)
-- 📫 How to reach me 📩 hi.nurulazka@gmail.com
+- 📫 You can reach me at 📩 hi.nurulazka@gmail.com
 
 <!---
 azkadr/azkadr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
