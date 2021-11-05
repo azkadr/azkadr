@@ -1,6 +1,6 @@
-- 👋 Hi, I’m azka ><
-- 👀 I’m interested in cooking and singing!
-- 🌱 I’m currently learning animal nutrition science :)
+- 👋 Hi, I’m azka :D
+- 👀 I’m interested in animanga, cooking, and music!
+- 🌱 I’m currently learning animal nutrition science :>
 - 📫 You can reach me at 📩 hi.nurulazka@gmail.com
 
 <!---
